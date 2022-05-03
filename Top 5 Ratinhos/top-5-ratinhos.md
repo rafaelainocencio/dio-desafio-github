@@ -11,5 +11,5 @@
 ## 2. ✨Ratinho Punk✨
   ![ratinho](https://i.pinimg.com/564x/b9/09/1f/b9091f9e82ec7b72cd960e4a2de38a5f.jpg)
   
-## 1. ✨Ratinho Ameno Dorime✨
+## 1. ✨Ratinho Dorime✨
   ![ratinho](https://i.pinimg.com/564x/41/51/1f/41511f3a6c63b3b1717c3bedaa7df4da.jpg)
